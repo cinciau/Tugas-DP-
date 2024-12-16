@@ -22,7 +22,7 @@ setelah itu ini dia link vidio youtube kami
 
 https://youtu.be/Rw-6LudygrU?si=t0vTEWuAKP2dJL9f
 
-maaf Abanganda dan kakanda tidak sesuai harapan  :(
+maaf Abanganda dan kakanda vidionya agak aneh :(
 
 
 
