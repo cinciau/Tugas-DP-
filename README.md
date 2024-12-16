@@ -16,9 +16,14 @@ Dengan contoh data film yang populer, program ini menghubungkan konsep pemrogram
 
 Berikutnya kami akan menampilkan flowcaht dari program kami  di bagian flowchat!!!
 
+![WhatsApp Image 2024-12-16 at 06 36 03_644e8bec](https://github.com/user-attachments/assets/fb4c37d4-791a-4fe9-bbc9-861c746c83d6)
+
 setelah itu ini dia link vidio youtube kami
 
 https://youtu.be/Rw-6LudygrU?si=t0vTEWuAKP2dJL9f
+
+maaf Abanganda dan kakanda tidak sesuai harapan  :(
+
 
 
 
