@@ -14,7 +14,11 @@ Program ini memungkinkan interaksi langsung dengan pengguna melalui input dan ou
 5.	Pengaplikasian Pemrograman untuk Dunia Nyata
 Dengan contoh data film yang populer, program ini menghubungkan konsep pemrograman dengan aplikasi dunia nyata, menjadikannya lebih menarik dan relevan.
 
-Berikutnya kami akan menampilkan flowcaht dari program kami!!!
+Berikutnya kami akan menampilkan flowcaht dari program kami  di bagian flowchat!!!
+
+setelah itu ini dia link vidio youtube kami
+
+https://youtu.be/Rw-6LudygrU?si=t0vTEWuAKP2dJL9f
 
 
 
